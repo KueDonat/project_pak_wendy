@@ -1,0 +1,1 @@
+di ekstrak terlebih dahulu 
